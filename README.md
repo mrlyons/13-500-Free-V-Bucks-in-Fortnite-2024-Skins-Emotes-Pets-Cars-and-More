@@ -2,7 +2,7 @@
 
 Are you ready to elevate your Fortnite experience in 2024? Here’s an exciting offer you won’t want to miss: **13,500 free V-Bucks!** Whether you're dreaming of stylish skins, unique emotes, adorable pets, or even flashy cars, this is your chance to grab them without spending a dime. In this article, we'll guide you on how to claim your free V-Bucks and explore the exciting possibilities they unlock in the game. Let's dive in! 🎁 We're giving away free V-Bucks, Fortnite Gifts and more! Click here to join in! 🎁
 
-## [✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What Are V-Bucks?
 
